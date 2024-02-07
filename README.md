@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @d4le-cooper, 33 YO from Rome
+- 👀 At the moment I work in a italian company which is involved in building mindustrial machine tools, and i work in Siemens automation (PLC) and the analytics side for predictive maintenance.
+- 📫 How to reach me: matteo.lai@live.com
+- ⚡ Fun fact: I worked as a italian dubbing sound engineer for almost 10 years afetr the university. Search "matteo lai doppiaggio" on google for discover it. 
